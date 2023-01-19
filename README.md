@@ -9,4 +9,3 @@
 - 📫 How to reach me: Gmail- donahuez24@wpsma.org
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I am a junior in High School
-- My Portfolio: file:///V:/P4%20-%20Web%20Design/ZackD/GitHub/Portfolio/index.html 
